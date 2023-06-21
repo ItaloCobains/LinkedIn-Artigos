@@ -1,0 +1,1 @@
+[Link do artigo aqui.](https://www.linkedin.com/pulse/compress%25C3%25A3o-de-dados-desvendando-efici%25C3%25AAncia-por-tr%25C3%25A1s-das-italo-brand%25C3%25A3o/?trackingId=JzDtdoboT8SVdTFpjl72lQ%3D%3D)

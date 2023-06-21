@@ -1,0 +1,1 @@
+[Link do artigo aqui.](https://www.linkedin.com/pulse/como-eu-aprendi-escrever-uma-linguagem-programa%25C3%25A7%25C3%25A3o-italo-brand%25C3%25A3o?trackingId=JzDtdoboT8SVdTFpjl72lQ%3D%3D&lipi=urn%3Ali%3Apage%3Ad_flagship3_profile_view_base_recent_activity_content_view%3B2WvtXePQTGyIEGtfVYu6fQ%3D%3D)
